@@ -1,3 +1,3 @@
 Luis Esteban Siatama ,
-Kevin ,
-Valentina
+Kevin David Rincon ,
+Laura Valentina Cubillos
